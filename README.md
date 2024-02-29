@@ -1,4 +1,4 @@
-# Hello Iam Fardin
+# Hello I am Fardin
 
 From Afghanistan
 
